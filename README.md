@@ -1,0 +1,5 @@
+- 👋 Hi, I'm Karla, I'm an Account Specialist in a world leader company in the Human Resources Industry
+- 👀 I’m interested in recruiting different profiles for diverse clients in Mexico related to Information Technologies(SQL Developers, Fullstack Developers, React, Node.js, Services Engineers, etc)  
+- 💞️ It would be amazing if I can collaborate on finding an amazing job opportunity for you. 
+- 📫 Please send me a Whatsapp with your updated resume if you are interested: +52 5579662924 
+- Talk to you soon! 
